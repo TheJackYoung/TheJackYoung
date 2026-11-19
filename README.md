@@ -9,4 +9,4 @@ I build with AI and creative tools, and I help creators put them to work.
 
 **Connect**
 
-[LinkedIn](https://www.linkedin.com/in/jack-young) · Jack@greenwoodmgmt.com
+[LinkedIn](https://www.linkedin.com/in/jack-young-88454253) · Jack@greenwoodmgmt.com
